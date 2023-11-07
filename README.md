@@ -6,4 +6,4 @@ ariezitos@gmail.com
 
 @ariezyyn
 
-!.{}.(https://media.tenor.com/9a0QBLnMWaEAAAAC/cute-bear.gif)
+!{ }(https://media.tenor.com/9a0QBLnMWaEAAAAC/cute-bear.gif)
